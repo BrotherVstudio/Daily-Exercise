@@ -1,0 +1,2 @@
+# Daily-Exercise
+Boring typing
